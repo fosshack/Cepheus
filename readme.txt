@@ -1,0 +1,2 @@
+A team of 5 people from Cusat named CEPHEUS is here to change the world of news reading. The app is still in developmental stage and more changes need to be done.
+PLease email any changes done at pandey.aditya579@gmail.com ,siddharth2798@rediffmail.com and keep the change going on.
